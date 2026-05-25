@@ -30,4 +30,4 @@ Sempre procurando evoluir, aprender novas ferramentas e melhorar minhas habilida
 
 ---
 
-💬 *"Cada desafio é uma oportunidade de aprender algo novo."*
+💬 *"Cada desafio é uma oportunidade de aprender algo novo."*wd
